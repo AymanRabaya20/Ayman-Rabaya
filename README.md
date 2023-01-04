@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rabayaayman20@gmail.com**
 
-- ⚡ Fun fact **I am a hardcore learner.**
+- ⚡ Fun fact **I Love cats 😼.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
